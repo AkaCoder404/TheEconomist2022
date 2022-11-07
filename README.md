@@ -16,7 +16,6 @@ The Economist 英文原版文字版 2022 版本
 如果你想要更早的版本，我也可以安排一下
 
 ## 支持我
-如果想支持我的话
-
+如果想支持我的话, 可以用alipay
 <img src="https://s2.loli.net/2022/11/06/w7O1HA3FuVU86jJ.jpg" alt="drawing" width="200"/>
 
